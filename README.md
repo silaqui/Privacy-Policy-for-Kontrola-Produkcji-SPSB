@@ -1,0 +1,1 @@
+# Privacy-Policy-for-Kontrola-Produkcji-SPSB
